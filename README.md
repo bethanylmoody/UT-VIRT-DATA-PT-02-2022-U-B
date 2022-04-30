@@ -18,6 +18,9 @@ Monday/Wednesday:
 * Class: 		       	7:00pm - 9:00pm CST
 * Optional Office Hours: 	9:00pm - 9:30pm CST
 
+Saturday:
+* Optional Office Hours: 10:00AM - 12:00PM CST
+
 ## Online Class Norms
 
   1. Find the most quiet, distraction-free area in your home to begin class.
